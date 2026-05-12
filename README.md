@@ -1,1 +1,0 @@
-# Mexico-Warehouse-Robotics-Market
